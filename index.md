@@ -38,5 +38,5 @@ Was Wir suchen!
 
 Hier der Link!   https://discord.gg/QqubAeMRE3
 
-
+https://cdn.discordapp.com/attachments/898782131172540476/915820533948485682/350kb.gif
 
