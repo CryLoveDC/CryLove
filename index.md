@@ -37,6 +37,6 @@ Was Wir suchen!
 
 
 Hier der Link!   https://discord.gg/QqubAeMRE3
-───────────────────────────────────────
+
 
 
