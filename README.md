@@ -1,1 +1,1 @@
-# CryLove.gingub.io
+# CryLove.ginhub.io
