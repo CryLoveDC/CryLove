@@ -1,1 +1,1 @@
-# CryLove.github.io
+# CryLove
