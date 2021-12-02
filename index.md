@@ -37,7 +37,8 @@ Was Wir suchen!
 Hier der Link!   https://discord.gg/QqubAeMRE3
 
 
-![static](https://user-images.githubusercontent.com/95398009/144361212-271195b9-c555-4903-8728-94f2565d3749.png)
+![350kb](https://user-images.githubusercontent.com/95398009/144361240-bd7c0ef0-ed4c-422f-9206-0c66202cc03a.gif)
+
 
 
 
