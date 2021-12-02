@@ -1,1 +1,1 @@
-# CryLoveGinHub.Io
+# CryLoveDiscord.Io
