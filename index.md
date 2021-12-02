@@ -34,9 +34,12 @@ Was Wir suchen!
 ┣Server Booster:🔮
 ┣YouTuber/Twitch Streamer 🎥
 ┣Partner🤝
-
-
 Hier der Link!   https://discord.gg/QqubAeMRE3
+
+
+![static](https://user-images.githubusercontent.com/95398009/144361212-271195b9-c555-4903-8728-94f2565d3749.png)
+
+
 
 
 
